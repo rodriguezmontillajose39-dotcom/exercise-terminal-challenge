@@ -26,4 +26,25 @@ I cut off a monkeys tail and now he's just a vegeta-ble.
 
 Hey, Vegeta I heard you have a hole in your Trunks. -Cell 
 
-source: http://www.jokes4us.com/peoplejokes/dragonballzjokes.html
+B
+B
+B
+B
+A
+A
+B
+B
+B
+B
+A
+A
+A
+B
+A
+Bsasd
+D
+C
+A
+D
+C
+surce: http://www.jokes4us.com/peoplejokes/dragonballzjokes.html
